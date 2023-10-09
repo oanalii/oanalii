@@ -1,4 +1,8 @@
-professional script stealer amateur script maker beginner script understander 
+professional script stealer
+
+amateur script maker
+
+beginner script understander 
 
 <!---
 oanalii/oanalii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
